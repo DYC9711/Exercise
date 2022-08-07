@@ -1,2 +1,1 @@
-# Exercise
-for excise
+for sake of excise
